@@ -1,4 +1,4 @@
-# 
+# smart nft sniper bot addons is the best nft sniper bot addons with multi-chain-support and wash-trading-execution. Safe, reliable, and optimized for NFT sniper, trading, and
 
 
 
